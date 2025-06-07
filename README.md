@@ -1,7 +1,7 @@
 # How about a little introduction, ay?!
-✨ *Hey!! I go by the username __Venus__ or __Kovi__, but you can call me whatever you want! As long it's nothing too creepy or I don't know... weird? Yeah, go wild, dude!!*
+✨ *Hey!! I go by the username __Venus__ or __Kovi__, but you can call me whatever you want! As long it's nothing too creepy or I don't know... weird?*
 
-🤭 *I'm a big Hololive fan and tend to really love desserts and pranks... I'm quite the prankster by myself!! Although, I'm also a little of a troublemaker sometimes. Just sometimes, though, worry not! There isn't much to say about me other than just some silly things. I can guarantee you that I'm a very chill and quiet person despite the energy presented in this one biography! Matter of fact, I'm only ever this hyper when around my __Ceci__. So hey... take the chance, I'll be extra silly and have quite a mood change whenever she's around! Pretty sure you can tell just by my pronouns.cc alone.*
+🤭 *I'm a big Hololive fan and tend to really love desserts and pranks... I'm quite the prankster myself!! Although, I'm also a little of a troublemaker sometimes. Just sometimes, worry not! There isn't much to say about me other than just some silly things. I can guarantee you that I'm a very chill and quiet person despite the energy presented in this one biography! Matter of fact, I'm only ever this hyper when around my __Ceci__. So hey... take the chance, I'll be extra silly and have quite a mood change whenever she's around! Pretty sure you can tell just by my pronouns.cc alone.*
 
 📌 *Pleease interact with me if you're a hololive fan or just like Limbus in general! I promise I don't bite, even if I look quite intimidating. I'm really shy and introverted at first but slowly we'll work it out, just have a tiiiny bit of patience with me and you'll see how magically I can turn our conversation in a fun time! I don't really have any __dni__ list of some sorts nor am I selective of those who I choose to be friends with, all you need to know is that if you're just a jerk and an asshole to anyone or my friends in specific, __you're not welcomed__. Although, if you do have a reason to be; just tell me it's a personal beef between you both or something... I won't stick my nose in further.*
 
@@ -13,7 +13,7 @@
 - Don't roleplay with me, for the love of god. I'll feel so awkward and cringe that I'll instantly hide you, I am not the character that I'm with the cos of!!
 - You're more guaranted to get a reply if you whisper me, I do not keep public chat on!!
 - Very low energy & tired individual here... that is if my __Via__ is not around.
-- I'm really introverted and quite blunt with stuff, I do not sugarcoat anything at all.
+- I'm really introverted and quite blunt with stuff!
 - My attention-span is genuinely really bad, so do remind me if I drift away a bit of our current topic.
 - Social-battery drains super fast... so if I suddenly be really silent, I'm just recharging!!
 - C + H is completely fine!! But if I'm with my __Ceci__ please ask her instead, she's my beloved and I'll naturally prioritize her comfort first. That also applies if I'm with a friend or someone else, be mindful!!
