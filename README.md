@@ -39,6 +39,6 @@
   - Owyhhc my back hurts I might be old help
   - Check out my main!! [@typeveenus](https://github.com/typeveenus)
 # We're done already?! But I wanted to say so much more!!
-" *I love her so much.* "
+" *愛してるよ、私の太陽* "
 
-  ![image](https://github.com/user-attachments/assets/e9bdfc52-d460-49be-bc6d-0bb2213f0ca5)
+![image](https://github.com/user-attachments/assets/f6968551-2d12-426e-b6b8-b13b47f19d2c)
