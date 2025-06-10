@@ -41,4 +41,7 @@
 # We're done already?! But I wanted to say so much more!!
 " *愛してるよ、私の太陽* "
 
+__***06/09/25 — Our stars aligned.***__
+
+*__I love my girlfriend.__*
 ![image](https://github.com/user-attachments/assets/f6968551-2d12-426e-b6b8-b13b47f19d2c)
