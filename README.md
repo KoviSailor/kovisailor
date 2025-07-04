@@ -43,6 +43,8 @@
 
 __***06/09/25 — Our stars aligned.***__
 
-*__I love my girlfriend <3__* ,, 🧡 💙 
+*__She's the reason I smile, I love my girlfriend! <3__* ,, 🧡 💙 
+
+*I'm not mean... I'm just very caring, my [love](https://github.com/autofister)!*
 
 ![image](https://github.com/user-attachments/assets/f6968551-2d12-426e-b6b8-b13b47f19d2c)
