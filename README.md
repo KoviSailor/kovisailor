@@ -44,7 +44,7 @@
 __***06/09/25 — Our stars aligned.***__
 
 *__She's the reason I smile, I love my girlfriend! <3__* ,, 🧡 💙 
-
-*Hiii there, silly!! I'm not mean... I'm just very caring, my [love](https://github.com/autofister)! I love love love you just as much if not more!!!*
+//
+*Hiii there, silly!! I'm not mean... I'm just very caring, my [love](https://github.com/autofister)! iloveyousosososomuchtootoheavenandbackiloveyoulots!!!*
 
 ![image](https://github.com/user-attachments/assets/f6968551-2d12-426e-b6b8-b13b47f19d2c)
