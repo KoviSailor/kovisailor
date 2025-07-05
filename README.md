@@ -7,7 +7,7 @@
 
 <img src="https://safebooru.org//images/1035/f65eb021b0e2969971d6104927ccd372af59c224.png?5673611" width="280" height="280">
 
-# BYI & Silly stuff!! 
+### BYI & Silly stuff!! 
 📜 *Before you interact... please keep in mind the following!!*
 - Very silly n'chill person to be around, doesn't mean I'll sugarcoat stuff or be doing blind eye to wrong stuff though.
 - I'm really quiet n'very awkward at first! Although, I'm more comfy interacting if my [Ceci](https://github.com/autofister) is around.
@@ -31,8 +31,8 @@
   - I promise I'm normal about my wife please trust me i swear i
   - *Grem who've survived the 21st of September incident...*
   - I miss my wife 24/7... I just love her a lot vro...
-  - Check out my main!! [@typeveenus](https://github.com/typeveenus)
-# "If I had a flower for every time I thought of you... I could walk through my garden forever."
+  - Check out my main!! [@Warden0fTime](https://github.com/Warden0fTime)
+### "If I had a flower for every time I thought of you... I could walk through my garden forever."
 <h5 align="center">
 " *愛してるよ、私の太陽* "
 
