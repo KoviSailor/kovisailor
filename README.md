@@ -8,7 +8,7 @@
 <img src="https://safebooru.org//images/1035/f65eb021b0e2969971d6104927ccd372af59c224.png?5673611" width="280" height="280">
 
 ### BYI & Silly stuff!! 
-📜 Before you jump into chatting with me... please keep these lil’ things in mind, okay~?
+📜 ***Before you jump into chatting with me... please keep these lil’ things in mind.***
 - I’m suuuper silly and chill to hang with, but don’t get it twisted—I won’t sugarcoat stuff or turn a blind eye to bad vibes! Gotta keep it real, innit?
 - I’m quiet and awkward at first! But if my [Ceci](https://github.com/autofister) is around, I get wayyyy more comfy and confident!
 - My social battery drains faster than you can say “prank time” so please be patient with me!
@@ -21,7 +21,7 @@
 
 ***ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•***
 
-📝 Silly stuff!! — basically me straight-up simping HARD for my gf tho...
+📝 ***Silly stuff!! — basically me straight-up simping HARD for my gf tho...***
 - I’m a jealous and dangerous gremlin, okay?! So KEEP YOUR HANDS OFF my automaton!! /hj 😈
 - I’m the number **ONE fan of [Via](https://github.com/autofister)** — don’t even try to compete!
 - Coded by yours truly, Gigi Murin & Ouro Kronii… but who knows what other secrets we’ve got?
