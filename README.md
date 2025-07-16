@@ -30,8 +30,8 @@
 - I like arson!! I love putting my enemies on fire!! Can you guess who I main in TF2?
 - I PROMISE I’m normal about my wife, just trust me on this one!
 - A gremlin survivor of the legendary 21st of September incident…
-- I miss my wife 24/7 — I love her so much, vro, it’s basically all I think about!
--Also, check out my main account if you wanna see more: [@Warden0fTime](https://github.com/Warden0fTime)
+- I miss my wife 24/7... I love her so much, vro, it’s basically all I think about!
+- Also, check out my main account if you wanna see more: [@Warden0fTime](https://github.com/Warden0fTime)
 ### "If I had a flower for every time I thought of you... I could walk through my garden forever."
 <h5 align="center">
 " *愛してるよ、私の太陽* "
