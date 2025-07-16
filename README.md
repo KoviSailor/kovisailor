@@ -1,7 +1,7 @@
 # How about a little introduction, ay?!
 ✨ *Hey there! You can call me ___Kovi___ or ___Venus___, whichever tickles your fancy!*
 
-🤭 *I'm a HUGE Hololive fan and I adore playing pranks! Like—mischief is practically my job, right?? I'm a jester through 'n through, always up to something. I’m usually not suuuper talkative tho... I kinda just vibe in my own little corner of the universe unless I'm with my partner~ [✨psst, it’s her!✨](https://github.com/autofister) Being around her just makes everything better!! Like—BOOM, instant serotonin~!! 🌈💥 Not sayin’ I’m grumpy all the time or anything!! Just... she’s my fav person ever and I really love her, okay??!! ALSO!! You should totally talk to her!! She’s a complete sweetheart, I swear—like, you're gonna be blessed just by being near her vibes, f’real!! 🌟*
+🤭 *I'm a HUGE Hololive fan and I adore playing pranks! Like—mischief is practically my job, right?? I'm a jester through 'n through, always up to something. I’m usually not super talkative tho... I kinda just vibe in my own little corner of the universe unless I'm with my partner... [✨psst, it’s her!✨](https://github.com/autofister) Being around her just makes everything better!! Like—BOOM, instant serotonin!! Not sayin’ I’m grumpy all the time or anything! Just... she’s my fav person ever and I really love her, okay??!! ALSO!! You should totally talk to her!! She’s a complete sweetheart, I swear! Like, you're gonna be blessed just by being near her vibes, f’real!! 🌟*
 
 📌 *You’re totally free to chat with me ANYTIME! I’m down for anything really!! I don’t have super specific interests, but I’m suuuper hyper-fixated on Hololive—like, duh! And my special special special interest is obviously my wifey!! What else would it even be?! But for real though, feel free to have all the silly talks you want with me! I don’t bite!! Just be cool and not a jerk, then we're gonna be just fine!!*
 
@@ -32,7 +32,7 @@
 - A gremlin survivor of the legendary 21st of September incident…
 - I miss my wife 24/7... I love her so much, vro, it’s basically all I think about!
 - Also, check out my main account if you wanna see more: [@Warden0fTime](https://github.com/Warden0fTime)
-### "If I had a flower for every time I thought of you... I could walk through my garden forever."
+### Iғ I ʜᴀᴅ ᴀ ғʟᴏᴡᴇʀ ғᴏʀ ᴇᴠᴇʀʏ ᴛɪᴍᴇ I ᴛʜᴏᴜɢʜᴛ ᴏғ ʏᴏᴜ... I ᴄᴏᴜʟᴅ ᴡᴀʟᴋ ᴛʜʀᴏᴜɢʜ ᴍʏ ɢᴀʀᴅᴇɴ ғᴏʀᴇᴠᴇʀ.
 <h5 align="center">
 " *愛してるよ、私の太陽* "
 
