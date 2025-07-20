@@ -3,7 +3,7 @@
 
 🤭 *I'm a HUGE Hololive fan and I adore playing pranks! Like—mischief is practically my job, right?? I'm a jester through 'n through, always up to something. I’m usually not super talkative tho... I kinda just vibe in my own little corner of the universe unless I'm with my partner... [✨psst, it’s her!✨](https://github.com/autofister) Being around her just makes everything better!! Like—BOOM, instant serotonin!*
 
-📌 *You’re totally free to chat with me ANYTIME! I’m down for anything really!! I don’t have super specific interests, but I’m suuuper hyper-fixated on Hololive—like, duh! And my special special special interest is obviously my wifey!! What else would it even be?! But for real though, feel free to have all the silly talks you want with me! I don’t bite!! Just be cool and not a jerk, then we're gonna be just fine!!*
+📌 *You’re totally free to chat with me ANYTIME! I’m down for anything really!! I don’t have super specific interests, but I’m suuuper hyper-fixated on Hololive... like, duh! And my special special special interest is obviously my wifey!! What else would it even be?! But for real though, feel free to have all the silly talks you want with me! I don’t bite!! Just be cool and not a jerk, then we're gonna be just fine!!*
 
 <img src="https://safebooru.org//images/1035/f65eb021b0e2969971d6104927ccd372af59c224.png?5673611" width="280" height="280">
 
@@ -12,7 +12,7 @@
 - I’m suuuper silly and chill to hang with, but don’t get it twisted—I won’t sugarcoat stuff or turn a blind eye to bad vibes! Gotta keep it real, innit?
 - I’m quiet and awkward at first! But if my [Ceci](https://github.com/autofister) is around, I get wayyyy more comfy and confident!
 - My social battery drains faster than you can say “prank time” so please be patient with me!
-- 99% of the time I’m just cuddling with my [girlfriend](https://github.com/autofister), come say hi anytime!! 
+- 99% of the time I’m just cuddling with my [girlfriend](https://github.com/autofister).
 - I do not do roleplay and I really, really despise it! Just because I cosplay a character doesn’t mean I’m acting like them, so please don’t ask me to. Nope nope nope!
 - If I feel uncomfortable, I can and WILL hide you—so please be mindful and watch what you say!
 - C+H is okay, but if I’m with my partner, you gotta ask her first! If she says it’s cool, then I’m chill with it.
@@ -25,7 +25,7 @@
 - I’m a jealous and dangerous gremlin, okay?! So KEEP YOUR HANDS OFF my automaton!! /hj 😈
 - I’m the number **ONE fan of [Via](https://github.com/autofister)** — don’t even try to compete!
 - Coded by yours truly, Gigi Murin & Ouro Kronii… but who knows what other secrets we’ve got?
-- **_Psst_**... I’m so in love with [@autofister](https://github.com/autofister) it’s honestly crazy. She’s literally EVERYTHING to me!! You have to be friends with her—she’s the sweetest, most fun person ever… but shhh, don’t tell her I told you! Be gentle with her, okay? She’s super soft and kind.
+- **_Psst_**... I’m so in love with [@autofister](https://github.com/autofister) it’s honestly crazy. She’s literally EVERYTHING to me!!
 - Like, seriously, I'm deadass in-love with her, vro...
 - I like arson!! I love putting my enemies on fire!! Can you guess who I main in TF2?
 - I PROMISE I’m normal about my wife, just trust me on this one!
