@@ -25,12 +25,10 @@
 - I’m a jealous and dangerous gremlin, okay?! So KEEP YOUR HANDS OFF my automaton!! /hj 😈
 - I’m the number **ONE fan of [Via](https://github.com/autofister)** — don’t even try to compete!
 - Coded by yours truly, Gigi Murin & Ouro Kronii… but who knows what other secrets we’ve got?
-- **_Psst_**... I’m so in love with [@autofister](https://github.com/autofister) it’s honestly crazy. She’s literally EVERYTHING to me!!
 - Like, seriously, I'm deadass in-love with her, vro...
 - I like arson!! I love putting my enemies on fire!! Can you guess who I main in TF2?
 - I PROMISE I’m normal about my wife, just trust me on this one!
 - A gremlin survivor of the legendary 21st of September incident…
-- I miss my wife 24/7... I love her so much, vro, it’s basically all I think about!
 - Also, check out my main account if you wanna see more: [@Warden0fTime](https://github.com/Warden0fTime)
 ### Iғ I ʜᴀᴅ ᴀ ғʟᴏᴡᴇʀ ғᴏʀ ᴇᴠᴇʀʏ ᴛɪᴍᴇ I ᴛʜᴏᴜɢʜᴛ ᴏғ ʏᴏᴜ... I ᴄᴏᴜʟᴅ ᴡᴀʟᴋ ᴛʜʀᴏᴜɢʜ ᴍʏ ɢᴀʀᴅᴇɴ ғᴏʀᴇᴠᴇʀ.
 <h5 align="center">
