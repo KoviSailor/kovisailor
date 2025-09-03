@@ -1,5 +1,5 @@
 # How about a little introduction, ay?!
-✨ *Hey there! You can call me ___Kovi___ or ___Venus___, whichever tickles your fancy!*
+✨ *Hey there! You can call me ___Maelis___ or ___Venuste___, whichever tickles your fancy!*
 
 🤭 *I'm a HUGE Hololive fan and I adore playing pranks! Like—mischief is practically my job, right?? I'm a jester through 'n through, always up to something. I’m usually not super talkative tho... I kinda just vibe in my own little corner of the universe unless I'm with my partner... [✨psst, it’s her!✨](https://github.com/autofister) Being around her just makes everything better!! Like—BOOM, instant serotonin!*
 
