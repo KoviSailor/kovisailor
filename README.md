@@ -10,24 +10,20 @@
 ### BYI & Silly stuff!! 
 📜 ***Before you jump into chatting with me... please keep these lil’ things in mind.***
 - I’m suuuper silly and chill to hang with, but don’t get it twisted—I won’t sugarcoat stuff or turn a blind eye to bad vibes! Gotta keep it real, innit?
-- I’m quiet and awkward at first! But if my [Ceci](https://github.com/autofister) is around, I get wayyyy more comfy and confident!
-- My social battery drains faster than you can say “prank time” so please be patient with me!
-- 99% of the time I’m just cuddling with my [girlfriend](https://github.com/autofister).
+- I’m quiet and awkward at first, I really don't talk a lot and prefer mutual silence at first!!
+- My social battery drains faster than you can say “prank time” so please be patient with me.
 - I do not do roleplay and I really, really despise it! Just because I cosplay a character doesn’t mean I’m acting like them, so please don’t ask me to. Nope nope nope!
-- If I feel uncomfortable, I can and WILL hide you—so please be mindful and watch what you say!
-- C+H is okay, but if I’m with my partner, you gotta ask her first! If she says it’s cool, then I’m chill with it.
-- You’ll probably get a faster reply if you whisper me!
+- If I feel uncomfortable, I can and WILL hide you—so please be mindful and watch what you say.
+- C+H is okay! Just check if I'm not with my girlfriend or any friends, otherwise I'd rather if you avoid it.
+- You’ll probably get a faster reply if you whisper me.
 - Wanna know more? Check out my pronouns.cc or carrd! It’s not much, but it’s me.
 
 ***ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•***
 
-📝 ***Silly stuff!! — basically me straight-up simping HARD for my gf tho...***
-- I’m a jealous and dangerous gremlin, okay?! So KEEP YOUR HANDS OFF my automaton!! /hj 😈
-- I’m the number **ONE fan of [Via](https://github.com/autofister)** — don’t even try to compete!
+📝 ***Silly stuff!! — basically me straight-up simping HARD for my gf tho...***�
 - Coded by yours truly, Gigi Murin & Ouro Kronii… but who knows what other secrets we’ve got?
 - Like, seriously, I'm deadass in-love with her, vro...
 - I like arson!! I love putting my enemies on fire!! Can you guess who I main in TF2?
-- I PROMISE I’m normal about my wife, just trust me on this one!
 - A gremlin survivor of the legendary 21st of September incident…
 - Also, check out my main account if you wanna see more: [@Warden0fTime](https://github.com/Warden0fTime)
 ### Iғ I ʜᴀᴅ ᴀ ғʟᴏᴡᴇʀ ғᴏʀ ᴇᴠᴇʀʏ ᴛɪᴍᴇ I ᴛʜᴏᴜɢʜᴛ ᴏғ ʏᴏᴜ... I ᴄᴏᴜʟᴅ ᴡᴀʟᴋ ᴛʜʀᴏᴜɢʜ ᴍʏ ɢᴀʀᴅᴇɴ ғᴏʀᴇᴠᴇʀ.
