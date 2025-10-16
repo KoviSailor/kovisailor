@@ -20,7 +20,7 @@
 
 ***ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•ʕ•̫͡•ʔ•̫͡•ʕ•̫͡•ʕ•̫͡•ʔ•̫͡•ʔ•̫͡•***
 
-📝 ***Silly stuff!! — basically me straight-up simping HARD for my gf tho...***�
+📝 ***Silly stuff!! — basically me straight-up simping HARD for my gf tho...***
 - Coded by yours truly, Gigi Murin & Ouro Kronii… but who knows what other secrets we’ve got?
 - Like, seriously, I'm deadass in-love with her, vro...
 - I like arson!! I love putting my enemies on fire!! Can you guess who I main in TF2?
